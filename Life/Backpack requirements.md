@@ -1,0 +1,14 @@
+
+- Files
+- Phone, wallet (keep a small bag for that)?
+- Sock aid
+- Shirt, pants, socks
+- Pee bags
+- Laptop
+- Chargers
+- Water bottle
+- Headphones
+- Power bank
+- Sanitizer
+- Napkins
+- 2 compartments
