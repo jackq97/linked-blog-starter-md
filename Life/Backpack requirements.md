@@ -12,3 +12,4 @@
 - Sanitizer
 - Napkins
 - 2 compartments
+- Secret compartment
